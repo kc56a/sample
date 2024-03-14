@@ -1,4 +1,12 @@
 # sample
 
+2024.03.14
 
-dsfgergergeberbrhberhegherg
+bj 게이밍 컴퓨터 견적
+-앞으로 유명 게이머 새로 컴퓨터 구입
+-비용 어디서 나올까요? 개인 사비, 부모님 카드
+
+비용. 300-500만원
+
+1.CPU - intal
+2.gpu - nivida
